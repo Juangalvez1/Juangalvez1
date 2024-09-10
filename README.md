@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Juangalvez1
+- 🌱 I’m currently coursing in college Sistems and Computer Enginering
+- 📫 You can send me an email
